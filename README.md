@@ -68,8 +68,9 @@
 
 ## 📫 Let's Connect!
 
-💼 [LinkedIn](www.linkedin.com/in/andresjuradosuarez)  
-📧 Email: andriujota@gmail.com 
+💼 [LinkedIn](https://www.linkedin.com/in/andresjuradosuarez)  
+📧 Email: andriujota@gmail.com
+
 
 ---
 
